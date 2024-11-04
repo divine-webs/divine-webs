@@ -24,6 +24,14 @@ Branding and content creation
 Graphic design for social media, print, or web
 If you’re looking for a dedicated, results-oriented partner for your next project, I’d love to hear from you!
 
+😄 Pronouns
+He/Him
+
+⚡ Fun Fact
+When I’m not designing or strategizing for clients, I’m probably learning about the latest tech trends or working on a new design concept. I believe that creativity and technology, together, can change the world! 🌍
+
+Thank you for visiting my profile! Let’s build something extraordinary together.
+
 📫 Connect With Me
 Feel free to reach out to discuss potential projects, collaborations, or just to connect professionally!
 
